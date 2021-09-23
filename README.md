@@ -10,7 +10,7 @@ Presence of cyberbullying and mental health issues in our schools
 
 • Making parents aware of their children’s experiences
 
-**Target audience **
+**Target audience**
 
 • People who feel they are subject to cyberbullying
 
